@@ -8,9 +8,10 @@
 * [Це ніхто не буде дивитись (Емма Антонюк)](https://www.youtube.com/@emma.hardtalk)
 * [Байдак](https://www.youtube.com/@byduck)
 	* ЦЕЙВО подкаст - розмови про професії
+* [Bromance podcast](https://www.youtube.com/@bromance.podcast) - розмови Нарімана Алієва та Макса Щербини про життя
+* [ПІДПІЛЬНИЙ.2](https://www.youtube.com/@UNDERGROUNDSTANDUP.2) - подкасти від Підпільного стендапу
 * [Na chasi](https://www.youtube.com/@na_chasi_/)
 * [hushchi (en)](https://www.youtube.com/@hushchi) - Look at Ukraine in a different way
-* [Когнітивна матерія](https://www.youtube.com/@CognitiveMatter)
 
 ## 📚 Книжки / Гуманітарне
 
@@ -33,6 +34,7 @@
 * [Alpha Centauri](https://www.youtube.com/@theACentauri) - Про космос
 * [Всесвіт UA](https://www.youtube.com/@vsesvit_ua)
 * [Igor Matrofailo](https://www.youtube.com/@imatrof) - Дайджест  технологій
+* [Когнітивна матерія](https://www.youtube.com/@CognitiveMatter)
 
 ## 🦊 Соціальне
 
