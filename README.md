@@ -10,6 +10,7 @@
 * [Ukraïner](https://www.youtube.com/@ukrainernet)
 * [ҐРУНТ](https://www.youtube.com/@grntmedia)
 * [DOU](https://www.youtube.com/@DOU_youtube) - Сфера ІТ
+* [SKVOT](https://www.youtube.com/@SKVOT_io) - School of Pop Culture
 * [Maincast Sport](https://www.youtube.com/@MaincastSport) - Спорт
 
 ## 👥 Без теми
@@ -25,6 +26,7 @@
 
 ## 🎹 Музика
 
+* [Звучить](https://www.youtube.com/@zvychut) - Канал про музику й шоубізнес від людей зсередини
 * [СучЦукрМуз](https://www.youtube.com/playlist?list=PL1wS3WkihAPWyLD78fJ9EJ_wSREdDLPyK) - Цукренко говорить з музикантами
 * [UNZIP](https://www.youtube.com/playlist?list=PLa6RrfylRW7TxaGZxUSriaT86NEtK3jDr) - Цукренко, архіви Українського радіо
 
