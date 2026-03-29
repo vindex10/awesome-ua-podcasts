@@ -46,12 +46,13 @@
 ## 🚀 Наукпоп
 
 * [Наукпопіл](https://www.youtube.com/@naukpopil) - Маслова: біологія, сон, психологія
+* [Простими словами](https://www.youtube.com/@user-prostymyslovamy) - Психологія та наука
+* [Когнітивна матерія](https://www.youtube.com/@CognitiveMatter)
+* [Клятий раціоналіст](https://www.youtube.com/@K.Rationalist)
 * [Alpha Centauri](https://www.youtube.com/@theACentauri) - Про космос
 * [Всесвіт UA](https://www.youtube.com/@vsesvit_ua)
-* [Igor Matrofailo](https://www.youtube.com/@imatrof) - Дайджест  технологій
-* [Когнітивна матерія](https://www.youtube.com/@CognitiveMatter)
-* [Простими словами](https://www.youtube.com/@user-prostymyslovamy) - Психологія та наука
 * [LIGA Life](https://www.youtube.com/@liga_life) - Про здоров'я з лікарями
+* [Igor Matrofailo](https://www.youtube.com/@imatrof) - Дайджест  технологій
 
 ## 🦊 Соціальне
 
