@@ -8,6 +8,7 @@
 * [Українська правда](https://www.youtube.com/@%D0%A3%D0%BA%D1%80%D0%B0%D1%97%D0%BD%D1%81%D1%8C%D0%BA%D0%B0%D0%9F%D1%80%D0%B0%D0%B2%D0%B4%D0%B0)
 * [Hromadske.зміст](https://www.youtube.com/@hromadske_zmist)
 * [Мілітарний](https://www.youtube.com/channel/UC3cntnJoRiiLaZ7dZwTTQ8A)
+* [DW Українською](https://www.youtube.com/@DWUkrainian) - Репортажі й аналітика з Німеччини та Європи
 * [ПІДПІЛЬНИЙ.2](https://www.youtube.com/@UNDERGROUNDSTANDUP.2) - подкасти від Підпільного стендапу
 * [Ukraïner](https://www.youtube.com/@ukrainernet)
 * [ҐРУНТ](https://www.youtube.com/@grntmedia)
