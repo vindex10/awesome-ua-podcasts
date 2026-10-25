@@ -5,13 +5,24 @@
 
 * [Суспільне Культура](https://www.youtube.com/@SuspilneKultura)
 * [yt-2](https://www.youtube.com/@yt-2)
+* [Українська правда](https://www.youtube.com/@%D0%A3%D0%BA%D1%80%D0%B0%D1%97%D0%BD%D1%81%D1%8C%D0%BA%D0%B0%D0%9F%D1%80%D0%B0%D0%B2%D0%B4%D0%B0)
 * [Hromadske.зміст](https://www.youtube.com/@hromadske_zmist)
+* [Мілітарний](https://www.youtube.com/channel/UC3cntnJoRiiLaZ7dZwTTQ8A)
 * [ПІДПІЛЬНИЙ.2](https://www.youtube.com/@UNDERGROUNDSTANDUP.2) - подкасти від Підпільного стендапу
 * [Ukraïner](https://www.youtube.com/@ukrainernet)
 * [ҐРУНТ](https://www.youtube.com/@grntmedia)
 * [DOU](https://www.youtube.com/@DOU_youtube) - Сфера ІТ
 * [SKVOT](https://www.youtube.com/@SKVOT_io) - School of Pop Culture
 * [Maincast Sport](https://www.youtube.com/@MaincastSport) - Спорт
+
+## 🇺🇦 Що робиться
+
+* [Національний інститут стратегічних досліджень](https://www.youtube.com/@niss_gov_ua/)
+* [Мілітарний подкаст](https://www.youtube.com/playlist?list=PLZrG2M8ZbpEWw3q-VbeWd-3nNeJ_8EeB7)
+* [Ремовська інтвер'ю](https://www.youtube.com/playlist?list=PL9aDK_7u4r7ffvcDLAs1rSLTXwtpXtktN)
+* [Поплава](https://www.youtube.com/@Pravonapoplavu/)
+	* [Фронтова Поплава](https://www.youtube.com/playlist?list=PL0R7-szg-luLHEmGTLGyqE3lafvBh2VIr)
+* [ДИВИСЬ. Українська Правда](https://www.youtube.com/playlist?list=PLOT9YOKeWXv-X_hBTZNYzTCY8FBFSNw0S)
 
 ## 👥 Без теми
 
